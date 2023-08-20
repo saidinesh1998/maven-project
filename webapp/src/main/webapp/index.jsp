@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Bangalore ,Tumkur ,Mysore and Mandya 
+Hello, Welcome to great leaders from Bangalore ,Tumkur ,Mysore ,Mandya and chikkamagalur 
